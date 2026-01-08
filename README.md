@@ -1,0 +1,1 @@
+# Paper-Equity-Research-DIC-2024-The-Wizard
